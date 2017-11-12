@@ -1,1 +1,1 @@
-ez egy új file
+szerintem inkább ez legyen itt
